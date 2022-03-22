@@ -87,7 +87,7 @@ shikhar@MacBook~ $ bash start
 ## Contact & Support
 
 - [Telegram Channel](https://t.me/RAWOFFICIALNETWORK)
-- [Telegram Support Group](https://t.me/rawofficialsupport)
+- [Telegram Support Group](https://t.me/Tele_family_69)
 - [Contact Owner](https://t.me/Raichu_xD)
 
 
